@@ -1,2 +1,2 @@
 Once upon a time there was a llama-corn-gator. It was bummed out, so it...
- decided to go get some food.
+ decided to go get some food. Some delicious food! Like corn!
